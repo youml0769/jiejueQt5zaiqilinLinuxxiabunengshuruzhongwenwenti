@@ -1,0 +1,1 @@
+# jiejueQt5zaiqilinLinuxxiabunengshuruzhongwenwenti
